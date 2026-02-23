@@ -1,2 +1,1 @@
-# Nada-perdido
-Compramos e vendemos, usei vende ! 
+https://g.co/gemini/share/ebde 85992542328
